@@ -1,2 +1,2 @@
 Rayyan Alam
-I do pole jumping 
+I am a student at AET
